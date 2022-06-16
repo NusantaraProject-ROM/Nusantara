@@ -8,10 +8,10 @@
 
 ## Feedbacks, for reporting or touch with us :
 
-**Website :** https://nusantaraproject.my.id/
+**Website :** https://nusantararom.org
 
-**Email us at :** [nusantaraproject.contact@gmail.com](nusantaraproject.contact@gmail.com)
+**Email us at :** support@nusantararom.org
 
-**Find us on Telegram :**
-https://t.me/NusantaraCommunity
-https://t.me/NusantaraUpdates
+**Find us on Telegram :**\
+Telegram Group: [Nusantara Community](https://t.me/NusantaraCommunity)\
+Telegram Channel: [Nusantara Update](https://t.me/NusantaraUpdates)
