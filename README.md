@@ -10,7 +10,7 @@
 
 **Website :** https://nusantararom.org
 
-**Email us at :** support@nusantararom.org
+**Email us at :** contact@nusantararom.org
 
 **Find us on Telegram :**\
 Telegram Group: [Nusantara Community](https://t.me/NusantaraCommunity)\
